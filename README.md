@@ -1,5 +1,5 @@
 ## About Me
-placeholder
+15 year old developer. I like to make things when I am bored. I am also very stupid sometimes (most of the time)
 
 <br>
 
